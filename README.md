@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pastorix2005
+- 👀 I’m interested in playing guitar and exercising
+- 🌱 I’m currently learning web development
+- 📫 How to reach me @josemigueldemaria@gmail.com
